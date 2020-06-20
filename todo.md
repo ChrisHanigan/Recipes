@@ -1,7 +1,7 @@
 - cheesecake
 - vanilla slice
 - choc mix cupcakes
-- cookie-brownie-ganache cake
+- Triple choc cake
 - mango mush cake
 - quick cheese noodle
 - beef taco mince
